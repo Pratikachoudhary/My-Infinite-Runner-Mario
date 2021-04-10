@@ -1,1 +1,1 @@
-# My-Infinite-Runner-Mario
+# INFINITE-RUNNER-GAME
